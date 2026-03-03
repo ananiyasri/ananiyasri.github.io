@@ -1,4 +1,4 @@
-# Activities & Leadership
+# Activities and Leadership
 
 - Member – SASTRA Moot Court Society (2023–24)
 - Member – SASTRA Legal Aid Clinic
